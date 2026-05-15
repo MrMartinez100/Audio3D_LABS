@@ -1,1 +1,1 @@
-# Audio3D_LABS
+Tomás Roca (u232173) <b>Pau Martínez Carrión (u232318)
