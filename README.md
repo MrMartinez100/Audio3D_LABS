@@ -1,1 +1,1 @@
-Tomás Roca (u232173) <b>Pau Martínez Carrión (u232318)
+<b>Tomás Roca (u232173) <b>Pau Martínez Carrión (u232318)
